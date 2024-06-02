@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **spring**
 
-- 📫 How to reach me **svkshubham@gmail.com**
+- 📫 How to reach me **svkshubham9142@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
